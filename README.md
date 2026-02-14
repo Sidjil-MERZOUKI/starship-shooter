@@ -155,7 +155,7 @@ This project is for educational purposes.
 **Sidjil Merzouki**
 
 - GitHub: [Sidjil-MERZOUKI](https://github.com/Sidjil-MERZOUKI)
-- LinkedIn: [Sidjil Merzouki](https://linkedin.com/in/jean-dupont)
+- LinkedIn: [Sidjil Merzouki](https://www.linkedin.com/in/sidjil-merzouki-85a01a3a5/)
 
 ---
 
